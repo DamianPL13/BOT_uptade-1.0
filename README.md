@@ -1,1 +1,0 @@
-# BOT_uptade-1.0
